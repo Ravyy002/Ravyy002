@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Amanda
+- Engenharia Civil 👩‍🔧🏗️🏢
+- "Sem Ele eu não sou nada, mas sem todos Ele ainda tudo"
+- ELE VOLTARÁ.... 🌞☁️
